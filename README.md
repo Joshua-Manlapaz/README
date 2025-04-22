@@ -15,4 +15,4 @@ I’m an aspiring Business Intelligence Analyst passionate about uncovering insi
 	•	Make music 🎧
 
 Let’s connect and create something awesome! 🙌
-📫 Reach me here or on LinkedIn
+📫 Reach me here or on LinkedIn https://www.linkedin.com/in/joshua-manlapaz/
